@@ -1,0 +1,2 @@
+# azqeot
+Daily digest notes
